@@ -1,1 +1,1 @@
-# Master-s-Study
+# Masters-Study
